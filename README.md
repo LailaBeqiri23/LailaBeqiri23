@@ -6,6 +6,6 @@
 - 🌱 I’m currently learning web-development at DCI.
 - 📫 How to reach me: lailabeqiri@libero.it
 - 😄 Pronouns: Lailita
-- 🏳️‍🌈 She/He
+- 🏳️‍🌈 Non-binary
 
 
